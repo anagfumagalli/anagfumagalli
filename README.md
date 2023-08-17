@@ -10,4 +10,4 @@ Meu nome é Ana Gabriela Fumagalli
 
 fumagalli.ana@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/not-funny-eye-roll-laughing-shirley-temple-giggle-gif-22086616)
+![](https://tenor.com/pt-BR/view/cony-brown-flying-kiss-love-gif-20078542)
